@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Jonathan Stiles
-- 👀 I’m interested in Software Engneering and information tech
+- 👀 I’m interested in Software Engneering, Web deveolpment and information tech
 - 📫 How to reach me My Email - stilesjonathan581@gmail.com , My Cell phone 412-780-3097
                      
 
